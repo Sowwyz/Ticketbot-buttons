@@ -18,3 +18,11 @@
 
 ![ticket](https://user-images.githubusercontent.com/88189918/220448845-60d11231-7977-4c02-9423-00150c106389.png)
 ![ticket delete](https://user-images.githubusercontent.com/88189918/220448847-d8ea43af-27c1-4024-a8e8-207c69152b06.png)
+
+
+
+
+
+No need to thank me ;D
+
+Discord: Sowwyz#1337
